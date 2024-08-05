@@ -15,3 +15,8 @@ a focused beam of variable colored light at the intruders they seem to lock up.
 Let's set up a turret that we can remote control with our new "light gun" and see
 if we can deal with these intruders!
 
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/xlx8LDm1cR0/0.jpg)](https://www.youtube.com/watch?v=xlx8LDm1cR0)
+
+![image](https://github.com/user-attachments/assets/2e12e586-9c4c-4877-a4b0-4b5a46469c47)
+
+
