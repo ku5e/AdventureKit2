@@ -4,5 +4,7 @@ Scavenging for resources has become near impossible lately. To make things worse
 
 [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/bJXxQL7Q6SY/0.jpg)](https://www.youtube.com/watch?v=bJXxQL7Q6SY)
 
+If you need more help
 
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/_g33pc28emc/0.jpg)](https://www.youtube.com/watch?v=_g33pc28emc)
 
